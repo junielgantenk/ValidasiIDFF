@@ -1,1 +1,4 @@
-# ValidasiIDFF
+Script By JC0D3
+-> IG: @JUNIEL_DAMAL46
+-> FB: JUNIEL DAMAL
+-> TW: JUNIELDAMAL
